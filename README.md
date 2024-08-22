@@ -16,19 +16,3 @@
 
 
 
-gosto muito de bike 
-
-
-
-
-
-
-
-
-
-
-
-
-
-![](https://media1.tenor.com/m/Bs0fLbxoJjMAAAAd/erik-banter-folding-bike.gif)
-
